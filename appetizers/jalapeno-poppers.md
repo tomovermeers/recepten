@@ -9,3 +9,13 @@
 - 8 fresh jalapeno peppers, halved lengthwise and seeded
 - 8 slices bacon, cut in half
 - 16 toothpicks
+
+## Preparation
+
+Preheat an outdoor grill for medium-high heat, and lightly oil the grate.
+
+Mix together the cream cheese, Cheddar cheese, corn, salt, and black pepper in a bowl.
+
+Fill the jalapeno halves with the cream cheese mixture.
+
+Wrap each stuffed pepper with bacon, securing it with a toothpick. Be sure the toothpick pokes through the bacon as well as the pepper.

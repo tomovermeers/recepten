@@ -1,7 +1,5 @@
 # Spaghetti Bolognese
 
-
-
 This dish can be combined with tomato soup and bread for an excellent and tasty experience.
 
 ## Combines with

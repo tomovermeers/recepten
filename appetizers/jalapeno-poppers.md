@@ -19,3 +19,5 @@ Mix together the cream cheese, Cheddar cheese, corn, salt, and black pepper in a
 Fill the jalapeno halves with the cream cheese mixture.
 
 Wrap each stuffed pepper with bacon, securing it with a toothpick. Be sure the toothpick pokes through the bacon as well as the pepper.
+
+Place the poppers face down on the grill over direct heat. Grill until bacon is crispy and brown, about 5 minutes; turn the poppers over and grill until bacon is crisp on other side, 5 more minutes.
